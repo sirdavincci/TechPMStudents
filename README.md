@@ -5,3 +5,7 @@ Hey you. Welcome to this Course, i hope you enjoy it and learn a lot, please lea
 -Dave Delgado  
 -Jonathan Solis
 -Laura F. García
+-Juan Antonio Cuahonte Isla
+-Daniel Rodriguez
+-Patricio Rojas Ortiz
+-Cristianco9
