@@ -9,3 +9,4 @@ Hey you. Welcome to this Course, i hope you enjoy it and learn a lot, please lea
 -Daniel Rodriguez  
 -Patricio Rojas Ortiz  
 -Cristianco9  
+-Frank A. Broche Gómez
